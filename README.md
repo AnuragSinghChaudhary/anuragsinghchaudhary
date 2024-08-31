@@ -1,1 +1,1 @@
-[Linkedin] (https://www.linkedin.com/in/anurag-singh-chaudhary)
+[Me](https://anuragsinghchaudhary.github.io/) . [Blog](https://anuragsinghchaudhary.github.io/blog/) . [Links](https://anrag.bio.link/) . [X](https://x.com/Anurag_chdry) . [Instagram](https://instagram.com/eatburrprepeat) . [Linkedin](https://www.linkedin.com/in/anurag-singh-chaudhary/) . [Youtube](https://www.youtube.com/@anrag/featured) 
