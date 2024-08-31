@@ -1,1 +1,1 @@
-Linkedin [https://www.linkedin.com/in/anurag-singh-chaudhary]
+[Linkedin] (https://www.linkedin.com/in/anurag-singh-chaudhary)
